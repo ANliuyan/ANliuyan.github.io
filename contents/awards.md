@@ -1,13 +1,10 @@
-- National Scholarship of Graduate Student, 2024.
+- 国家励志奖学金,2024.
 
-- First-prize Scholarship of CUMT, 2024.
+- 大连市数学竞赛三等奖, 2024.
 
-- First-prize Scholarship of CUMT, 2023.
+- 《时代周刊》年度风云人物 2006.
 
-- Freshman Scholarship of CUMT, 2022.
+- 感动中国特别奖, 2008.
 
-- Excellent Graduation Project of Jiangsu Province, 2022.
+- 联合国“地球卫士奖”联合获奖人, 2019.
 
-- First-prize Enterprise Scholarship of CUMT, 2020.
-
-- First-prize Scholarship of CUMT, 2019.
