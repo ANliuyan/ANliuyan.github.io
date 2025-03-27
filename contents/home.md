@@ -2,10 +2,10 @@
 
 [![yanliu](https://img.shields.io/badge/ANliuyan-github-blue?logo=github)](https://github.com/ANliuyan)
 
-He is currently pursuing a Master's Degree in Computer Science, at School of Computer Science and Technology, China University of Mining and Technology, China.
+He is currently pursuing a Undergraduate's Degree in Fintech, at Dongbei University of Finance and Economics.
 
 #### Email
-2778229109[at]qq.com
+2778229109@qq.com
 
 #### Education
 东北财经大学金融科技学院, 2023—至今
