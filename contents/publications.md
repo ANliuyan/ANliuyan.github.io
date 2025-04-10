@@ -6,5 +6,5 @@
 
 - <strong>刘岩</strong>，赵雪晴. 银行家问卷调查与信贷周期理论的再检验. [[Paper]](https://kns.cnki.net/kcms2/article/abstract?v=X0pQrW14MIvH9eBuW7ChC9saQTezsWlDFEYYBw3QB_PCUw4OqyjFM--yRBwLsM12STTGFPgPoItR6zIFiLEz9Gr5Z0-aevTavAuSx_MgbGJdIVU96YZItG2cfiXfqfKHJSRlNAzo2XLqwmIBdYWQTeNzU1G5mdN-Rbjm0ydLVIBPNB83YJ8gew==&uniplatform=NZKPT&language=CHS)
 
-- 魏宝社, <strong>. 数学之于现实世界.. [[Paper]](https://kns.cnki.net/kcms2/article/abstract?v=KlmjsyJjhUQYcD2XVvFU3WjGiOzHwMA5TSiDcbDekv3w6_99GO_Z_sbu59hCBoUabHexQP9wbDazCyPvVri2uON3Lq-KIcLwNdv3LpxHrC7CEeKyeHtfj_TU5ebW7pppaBxHzmmJYQuk5FZG4Co8FqKw7d1kpTIG8RwDkTttFCCoDuxH8yB0TzROVfuO0HYK&uniplatform=NZKPT&language=CHS)
+- <strong>魏宝社</strong>. 数学之于现实世界. [[Paper]](https://kns.cnki.net/kcms2/article/abstract?v=KlmjsyJjhUQYcD2XVvFU3WjGiOzHwMA5TSiDcbDekv3w6_99GO_Z_sbu59hCBoUabHexQP9wbDazCyPvVri2uON3Lq-KIcLwNdv3LpxHrC7CEeKyeHtfj_TU5ebW7pppaBxHzmmJYQuk5FZG4Co8FqKw7d1kpTIG8RwDkTttFCCoDuxH8yB0TzROVfuO0HYK&uniplatform=NZKPT&language=CHS)
 
